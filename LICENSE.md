@@ -1,4 +1,4 @@
-# 
+# مميز bot تداول التحكيم قوالب for Mac OS | VIP bot تداول التحكيم قوالب for PC Windows. Featuring مجموعات السيولة DEX and واجهة برمجة التطبيقات للتبادل اللامركزي — optimized for maximum performance.
 
 
 
